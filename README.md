@@ -10,4 +10,4 @@ A continuación una lista de como me hace sentir aprender en Platzi:
 
 Y listo, no hay más sentimientos jaja
 
-Esta [canción](httphttps://www.youtube.com/watch?v=1TCX_Aqzoo4&t=329s:// "canción") me motiva a seguir aprendiendo :)
+Esta [**canción**](httphttps://www.youtube.com/watch?v=1TCX_Aqzoo4&t=329s:// "canción") me motiva a seguir aprendiendo!
